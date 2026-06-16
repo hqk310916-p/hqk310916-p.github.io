@@ -1,1 +1,0 @@
-# hqk310916-p.github.io
